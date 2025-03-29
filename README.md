@@ -7,3 +7,5 @@ No notice. No due process. Then they spirited her out of state — in likely vio
 Due process is a human right. As is living peacefully in a safe shelter that is not getting blown up. I want Congress to stand up for human rights this weekend, stay standing through the 2026 midterms, and never sit down again. Early next week, please publish a letter — signed by every Congressional Democrat — committing to join the delegation. Your caucus needs no majority. But it does need to show up.
 
 זכרו — zichrú — remember the engraving of Martin Niemöller’s “First they came…” poem at the Holocaust memorial in Boston:
+
+![the engraving of Martin Niemöller's "First they came…" poem at the Holocaust memorial in Boston](1743149323711.jpeg)
